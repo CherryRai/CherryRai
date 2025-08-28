@@ -3,8 +3,8 @@
 <!--
 **CherryRai/CherryRai** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
-I am ⋆｡‧˚ʚ🍓Sthapana Rai🍓ɞ˚‧｡⋆ 
-I love cute stuffff!! 
+- I am ⋆｡‧˚ʚ🍓Sthapana Rai🍓ɞ˚‧｡⋆ 
+- I love cute stuffff!! 
 
 
 - 🔭 I’m currently working on ...
