@@ -1,8 +1,10 @@
-## Helloo!! :3
+## Helloo!! ♡₊˚ 🦢・₊✧
 
-I am ⋆｡‧˚ʚ🍓Sthapana Rai🍓ɞ˚‧｡⋆  
-I love cute stuffff!! 
-![Thank you for stopping by, here](hehe.png)
+I am Sthapana Rai 🍓  
+I love food 🍰🥐🥨
+
+<img src="hehe.png" alt="Me" width="150" />
+Thank you for stopping by :3
 
 
 
