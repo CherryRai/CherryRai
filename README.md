@@ -1,4 +1,4 @@
-## Helloo!! ♡₊˚ 🦢・₊✧
+## Helloo!! ♡
 
 I am Sthapana Rai 🍓🍰
 
